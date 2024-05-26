@@ -32,7 +32,7 @@ SSR 协议机场
 
 高端专线翻墙机场
 
-### [DOVE加速器官网](https://tgjkdjfk.top/a.php?amawx2CyMVa2)
+### [DOVE加速器官网，点击注册试用](https://tgjkdjfk.top/a.php?amawx2CyMVa2)
 
 **免费试用和退款保障：**
 免费试用：注册即可免费试用，用户可以在购买前先体验其翻墙性能。
