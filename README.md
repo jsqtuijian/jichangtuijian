@@ -1,4 +1,4 @@
-## 2024 付费翻墙机场梯子加速器推荐 - 最靠谱好用的机场，点击注册试用
+## 2024 付费翻墙机场梯子加速器推荐 - [最靠谱好用的机场，点击注册试用](https://tgjkdjfk.top/a.php?amawx2CyMVa2)
 2024 年好用的的翻墙机场推荐，机场梯子的技术在16年左右以SS开始流行。因为高速和加密的特性，国内用机场技术翻墙已经很多年了。常年使用机场梯子软件的同学，应该已经知道很多翻墙的知识。机场一般采用专用的翻墙协议，如 Shadowsocks、ShadowsocksR、V2ray（Vmess）、Trojan 等， 适配于 Clash、Shadowrocket、Quantumult X、Stash、Surge、V2rayN、Surfboard 等多种客户端。翻墙机场和VPN的技术协议完全不同，但在国内已经胜过VPN。
 
 ## Clash 翻墙机场客户端推荐
